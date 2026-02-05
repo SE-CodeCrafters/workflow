@@ -1,4 +1,4 @@
 Manu
-Mariiam is the best frontendschik !!! kekeke
+Mariiam is the best frontendschik !!!
 Asma
 Tatty: frontend
